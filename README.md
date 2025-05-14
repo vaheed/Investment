@@ -64,9 +64,9 @@ After this datacenter, we will raise **minimum 5 Billion IRR** for:
 
 ## Contact Us
 
-- 🌐 Website: [www. .cloud](http://www. .cloud)  
-- 📧 Email: invest@ .cloud  
-- 📞 Phone: +98 912 xxx xxxx
+- 🌐 Website: [www.vaheed.net](https://www.vaheed.net)  
+- 📧 Email: invest@vaheed.net
+- 📞 Phone: +98 937 198 8686
 
 ---
 
