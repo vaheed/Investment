@@ -1,4 +1,4 @@
-[نسخه فارسی پیشنهاد سرمایه‌گذاری](./README_fa.md)
+[نسخه فارسی پیشنهاد سرمایه‌گذاری](./README.fa.md)
 
 # Investment Proposal – Series A  
 ### Cloud – Virtual Datacenter Expansion
